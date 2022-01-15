@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @410E4ALO3A
+- 👋 Hi, I’m @ALO3A_410E4
 - 👀 I’m interested in Create
 - 🌱 I’m currently learning Englsih
 - 💞️ I’m looking to collaborate on Friday Night Funkin'
